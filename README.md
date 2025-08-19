@@ -1,1 +1,1 @@
-Withus seminar slides by Jeongmin Cheon
+Withus seminar slides
